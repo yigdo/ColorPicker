@@ -2,7 +2,7 @@
 
 <center>
 
-[![Video](https://img.youtube.com/vi/YpDr2YzB6DI/0.jpg)](https://www.youtube.com/watch?v=YpDr2YzB6DI
+[![Video](https://img.youtube.com/vi/YpDr2YzB6DI/0.jpg)](https://www.youtube.com/watch?v=YpDr2YzB6DI)
 
 </center>
 
